@@ -1,4 +1,4 @@
-# fivenightatepstein
+# Five Nights at Epstein's
 five nights at epstein's unblocked game https://www.rapidwebapp.com/games/five-nights-at-epsteins
 
 This game has a concept similar to FNAF or Five Nights at Freddy's, where the goal is to survive five nights without being caught by monitoring CCTV cameras and diverting attention to other rooms.
